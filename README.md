@@ -1,0 +1,2 @@
+# poznamky
+Poznamky ze skoly
